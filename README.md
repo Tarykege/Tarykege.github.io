@@ -1,1 +1,0 @@
-# Tarykege.github.io
